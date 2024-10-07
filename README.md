@@ -7,5 +7,11 @@ _Flutter Flow_
 _Flutter_
 _Banco de Dados_
 _Java Script_
+_entre outros.._
 
+## Interesses futuros
+_Pretendo fazer faculdade, ainda estou a decidir qual, trabalhar e conquistar meus objetivos_
+
+## Coisas que gosto de fazer
+**dormir**, treinar academia, assistir filmes
 **Obrigada por ter visitado meu perfil!!**
